@@ -1,4 +1,4 @@
 # HW
-data analyst course WH
-all home work from the corse
+data analyst course WH!
+all home work from the course
 
